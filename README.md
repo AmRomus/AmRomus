@@ -2,7 +2,7 @@
 - 👀 I’m interested in Networking and php programming
 - 🌱 I’m currently learning any what depends on networking and automatisation 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me in telegramm
+- 📫 How to reach me in telegramm ? :)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I'm 40+ but I still like studying ..
 
